@@ -1,5 +1,5 @@
 # Location
-## 一共看了10个房子，整个大区，价格在1200$以内的，即使扩大到1500$也只会位置更近，综合条件（比如面积结合社区）也不会更好。
+## 一共看了15个房子，整个大区，价格在1200$以内的，即使扩大到1500$也只会位置更近，综合条件（比如面积结合社区）也不会更好。
 https://www.har.com/directions?address=73700281%7C92694161%7C62768595%7C85569658%7C60418031%7C35011658%7C28632639%7C87053565%7C56014950%7C14575779&mode=directions&autooptimization=1&cid=Ruox&ref=
 ![image](https://github.com/user-attachments/assets/fe2882eb-0cc7-445d-956f-3223d91883d1)
 
