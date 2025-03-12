@@ -10,13 +10,12 @@ https://www.har.com/homedetail/12850-whittington-dr-608a-houston-tx-77077/168211
 ![image](https://github.com/user-attachments/assets/9f2784b9-d47d-468b-b9f6-96b2ffce9908)
 ![image](https://github.com/user-attachments/assets/348c2354-9add-459b-b36b-4a6e890a4e6c)
 
-# 选择2 1b1b，1000 sqrt 1200$ 没有狗费。 1个cover 停车场，另一个随意。小区特别大，特别安静。距离中国城近，小区外环境差，但是小区内很好，房子对着河边没有邻居。优点是房子面积大，小区大可以遛狗
-# 距离6.2 mile. 堵车半小时，不堵车15分钟。
-[https://www.har.com/homedetail/3055-walnut-bend-ln-12-houston-tx-77042/3524693](https://matrix.harmls.com/Matrix/Public/Portal.aspx?p=DE-215917026-243&k=3165747X517R&L=1&eml=enliZjEyMDhAZ21haWwuY29t#1)
-![image](https://github.com/user-attachments/assets/cc1c1f7b-26e9-4643-b129-bf487d6fc988)
-![image](https://github.com/user-attachments/assets/a74b17fe-e245-470f-96af-97b561af10d9)
-![image](https://github.com/user-attachments/assets/cd85629d-79f0-46a7-9011-521ceb185b07)
-![image](https://github.com/user-attachments/assets/311f8e77-caca-45d7-9c0a-f23a378ad2a7)
+## 唐城
+https://matrix.harmls.com/Matrix/Public/Portal.aspx?ID=0-1946507808-10&eml=enliZjEyMDhAZ21haWwuY29t&L=1#1
+房子大，独栋， 社区一般但是不是特别差
+* ![image](https://github.com/user-attachments/assets/ad99f92c-8630-4d2a-9634-f03e8ae35022)
+
+
 
 
 
